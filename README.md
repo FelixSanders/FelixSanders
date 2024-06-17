@@ -1,7 +1,9 @@
 - 👋 Hi, I’m Felix Sanders Kusuma
 - 🕹️ I usually do random stuff, nothing specific
 - 🏙️ Born in the city of Bandung
-
+- @felixsanders.k on Instagram
+- @FelixSandersK on Twitter & TikTok
+- @felixsanders on YouTube
 
 - yeah thats about it
 
