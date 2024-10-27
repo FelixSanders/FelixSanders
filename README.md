@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Felix Sanders Kusuma
 - 🕹️ I usually do random stuff, nothing specific
 - 🏙️ Born in the city of Bandung
-- 🌐 felixsanders.com
+- 🌐 https://felixsanders.com
 
 - yeah thats about it
 
